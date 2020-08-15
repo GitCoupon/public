@@ -1,4 +1,5 @@
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/00.jpg)
+![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/001.png)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/01.jpg)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/2434103_a1.png)
 ![+AIGeneratedStoryByDaveTheStoryAuthor](https://github.com/GitCoupon/public/blob/master/2607101_a1.png)
